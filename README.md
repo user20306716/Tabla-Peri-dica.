@@ -1,1 +1,1 @@
-# Tabla-Peri-dica.
+# Tabla-Periodica.
